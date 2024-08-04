@@ -6,4 +6,4 @@ Do not copy my skins, please, you can be inspired by them if you liked them so m
 <br/>( Thank you so much for following me, I don't know why it is needed here, but I appreciate it! )
 
 ![bg](https://github.com/user-attachments/assets/f29786d4-ad80-4f7c-9a3c-44203dcf9f6a)
-The page may change in future
+The page may change in future ࿐°*˖✧
