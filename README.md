@@ -1,4 +1,7 @@
-## ![banner](https://github.com/user-attachments/assets/7ea54dc6-1bcb-4184-a14d-7e2816c9c3fb)
+## ![banner](https://github.com/user-attachments/assets/cb96f889-81d8-4885-820b-df3903703985)
+
+
+
 
 
 ### Tags I use: OFFTAB, AFK ( Away From Keyboard ), INT ( Interact ), W2I ( Whisper To Interact ), C+H ( Cuddles and Hide ), DNC ( Do Not Copy ), RPDNI ( Roleplay DNI )<br/>
