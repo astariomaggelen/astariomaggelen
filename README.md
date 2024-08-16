@@ -1,18 +1,13 @@
-## ![banner](https://github.com/user-attachments/assets/cb96f889-81d8-4885-820b-df3903703985)
-
-
-
-
-
+I use this site mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me!
+![2 ](https://github.com/user-attachments/assets/165b7857-5a02-4826-9c9d-bf762be9f118)
 ### Tags I use: OFFTAB, AFK ( Away From Keyboard ), INT ( Interact ), W2I ( Whisper To Interact ), C+H ( Cuddles and Hide ), DNC ( Do Not Copy ), RPDNI ( Roleplay DNI )<br/>
 #### Fandoms i'm in: 
 Most of the Roblox games / myths,<br/>
 Marikin Online 4 / MO4,<br/> 
 World of Randal and his friends / Ranfren,<br/> 
 Max Design Pro / MDP and there are many things that I may not remember or no longer focus on, but I can safely keep the conversation going!<br/>
-### ✧˖*°࿐ You can feel free to chat with me or sit next to me, I will be glad, but I don't always see messages, it would be better if you calling me in whisper!<br/>
+### ‧₊˚🖇️✩ ₊˚🎧⊹♡ You can feel free to chat with me or sit next to me, I will be glad, but I don't always see messages, it would be better if you calling me in whisper!<br/>
 Do not copy my skins, please, you can be inspired by them if you liked them so much, but being inspired is not the same as completely copying pixel to pixel, so I hope for your mutual understanding, because your own idea will not be worse than the ideas of others! Thank you and have a nice day!<br/>
 <br/>( Thank you so much for following me, I don't know why it is needed here, but I appreciate it! )
+![1 ](https://github.com/user-attachments/assets/420988b8-56a9-4d32-9efe-37154e86f4de)
 
-![354901228-f29786d4-ad80-4f7c-9a3c-44203dcf9f6a](https://github.com/user-attachments/assets/c2a02a0a-8438-4f69-bbf0-8255218ee3c3)
-The page may change in future ࿐°*˖✧
