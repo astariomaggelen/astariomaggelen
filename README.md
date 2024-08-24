@@ -5,7 +5,8 @@ I use this site mainly for Pony Town ( PT ), so it is recommended to read it bef
 #### OFFTAB, 
 #### AFK ( Away From Keyboard ),
 #### INT ( Interact ),
-#### W2I ( Whisper To Interact ), C+H ( Cuddles and Hide ),
+#### W2I ( Whisper To Interact ), 
+#### C+H ( Cuddles and Hide ),
 #### NV ( Non-Verbal - not strict tag, just if you want! )
 #### MV ( My Version ),
 #### NC ( Do Not Copy ),
