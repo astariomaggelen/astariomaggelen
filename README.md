@@ -1,5 +1,5 @@
 <div align="center">
-I use this site mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me!
+I use this page mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me!
 
 ## Tags I use: 
 #### OFFTAB, 
