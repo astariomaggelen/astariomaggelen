@@ -1,5 +1,7 @@
 <div align="center">
 
+![0123-glitterpink](https://github.com/user-attachments/assets/a598efba-14e7-47ed-9a4c-0406e214b2bd)
+
 <br/>I use this page mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me!
 
 ![12c3343b](https://github.com/user-attachments/assets/d1645dc4-b2ba-4eb2-b98e-4ef1342516f1)
