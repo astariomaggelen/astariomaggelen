@@ -16,7 +16,7 @@
 #### DNC ( Do Not Copy ),
 #### RPDNI ( Roleplay DNI )
 
-### ( !You may not like the tag theme or something like that, but that doesn't mean that you should stop respecting others in this, stay tolerant and understanding, people are different and you don't need to be reminded of that! )
+### !You may not like the tag theme or something like that, but that doesn't mean that you should stop respecting others in this, stay tolerant and understanding, people are different and you don't need to be reminded of that!
 
 ![cringecultureisdead](https://github.com/user-attachments/assets/a35106a1-95b9-4632-82a4-42ac0cf0ba34)
 
