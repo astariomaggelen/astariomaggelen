@@ -10,9 +10,10 @@
 #### INT ( Interact ),
 #### W2I ( Whisper To Interact ), 
 #### C+H ( Cuddles and Hide ),
+#### DNC ( Do not cover - not strict tag, but it is advisable not to cover! )
 #### NV ( Non-Verbal - not strict tag, just if you want! )
 #### MV ( My Version ),
-#### NC ( Do Not Copy ),
+#### DNC ( Do Not Copy ),
 #### RPDNI ( Roleplay DNI )
 
 ![cringecultureisdead](https://github.com/user-attachments/assets/a35106a1-95b9-4632-82a4-42ac0cf0ba34)
