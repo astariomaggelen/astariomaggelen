@@ -24,4 +24,5 @@
 Do not copy my skins, please, you can be inspired by them if you liked them so much, but being inspired is not the same as completely copying pixel to pixel, so I hope for your mutual understanding, because your own idea will not be worse than the ideas of others! Thank you and have a nice day!<br/>
 <br/>( Thank you so much for following me, I don't know why it is needed here, but I appreciate it! )
 
-![0e63e6b5](https://github.com/user-attachments/assets/0cd30074-1301-459d-b386-0943769ee7a9) 
+![0e63e6b5](https://github.com/user-attachments/assets/0cd30074-1301-459d-b386-0943769ee7a9)
+<br/>( The page may change according to the mood of the owner )
