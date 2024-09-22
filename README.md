@@ -1,8 +1,6 @@
 <div align="center">
 
-![12c3343b](https://github.com/user-attachments/assets/d1645dc4-b2ba-4eb2-b98e-4ef1342516f1)
-<br/>I use this page mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me!
-![12c3343b](https://github.com/user-attachments/assets/d1645dc4-b2ba-4eb2-b98e-4ef1342516f1)
+<br/>![9eb8efc6](https://github.com/user-attachments/assets/ab7a5ca3-4370-4f56-b5a3-7b77f973bde0) I use this page mainly for Pony Town ( PT ), so it is recommended to read it before interacting with me! ![9eb8efc6](https://github.com/user-attachments/assets/ab7a5ca3-4370-4f56-b5a3-7b77f973bde0)
 
 ## Tags I use: 
 #### OFFTAB, 
