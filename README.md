@@ -14,7 +14,8 @@
 #### DNC ( Do Not Copy ),
 #### RPDNI ( Roleplay DNI )
 
-### ‼️You may not like the tag theme or something like that, but that doesn't mean that you should stop respecting others, stay tolerant and understanding, people are different and you don't need to be reminded of that‼️
+### ‼️You may not like the tag theme or something like that, but that doesn't mean that you should stop respecting others, 
+### stay tolerant and understanding, people are different and you don't need to be reminded of that‼️
 
 ![photo_2024-09-22_20-31-29](https://github.com/user-attachments/assets/7ddb673f-7fa9-4422-b0c9-6d5f34b086bb)
 
