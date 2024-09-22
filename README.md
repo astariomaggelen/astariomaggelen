@@ -16,7 +16,7 @@
 
 ### !You may not like the tag theme or something like that, but that doesn't mean that you should stop respecting others, stay tolerant and understanding, people are different and you don't need to be reminded of that!
 
-![cringecultureisdead](https://github.com/user-attachments/assets/a35106a1-95b9-4632-82a4-42ac0cf0ba34)
+![photo_2024-09-22_20-31-29](https://github.com/user-attachments/assets/f1ab4833-a096-4b1e-ae50-2dbf6a6b806d)
 
 ## ‧₊˚🖇️✩ ₊˚🎧⊹♡ You can feel free to chat with me or sit next to me, I will be glad, but I don't always see messages, it would be better if you calling me in whisper!<br/>
 Do not copy my skins, please, you can be inspired by them if you liked them so much, but being inspired is not the same as completely copying pixel to pixel, so I hope for your mutual understanding, because your own idea will not be worse than the ideas of others! Thank you and have a nice day!<br/>
