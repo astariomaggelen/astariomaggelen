@@ -20,7 +20,7 @@
 ![photo_2024-09-22_20-31-29](https://github.com/user-attachments/assets/7ddb673f-7fa9-4422-b0c9-6d5f34b086bb)
 
 ## You can feel free to chat with me or sit next to me, I will be glad, but I don't always see messages, it would be better if you calling me in whisper!<br/>
-If I sit with my friends or just people who sit with me, in different skins - it is not necessary to immediately consider this some kind of ship.<br/>
+If I sit with people, no need automatically assume that our skins are some kind of ship.<br/>
 
 Do not copy my skins, please, you can be inspired by them if you liked them so much, but being inspired is not the same as completely copying pixel to pixel, so I hope for your mutual understanding, because your own idea will not be worse than the ideas of others! Thank you and have a nice day!<br/>
 <br/>( Thank you so much for following me, I don't know why it is needed here, but I appreciate it! )
