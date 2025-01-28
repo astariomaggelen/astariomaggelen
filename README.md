@@ -8,7 +8,7 @@ offtab, afk ( away from keyboard ), int ( interact ), w2i (whisper to interact )
 
 feel free to interact with me and also get inspired, take ideas from my skins,<br/> just don't copy them pixel by pixel and don't post my skins anywhere without permission
 
-[strawpage](https://astariomaggelen.straw.page/)
+[strawpage](https://astariomaggelen.straw.page/) ,
 [atabook](https://astariomaggelen.atabook.org/)
 
 thanks to everyone who follows me, I really appreciate it and am glad to see people,<br/> also my github can change depending on my mood so, don't lose me, have a nice day </3
