@@ -2,7 +2,7 @@
 
 offtab, afk ( away from keyboard ), int ( interact ), w2i (whisper to interact ), c+h ( cuddles and hide ),<br/> dnc ( do not cover ), nv ( non-verbal ), mv ( my version ), dnc ( do not copy ), rpdni ( roleplay dni )
 
-![3ca9d48f](https://github.com/user-attachments/assets/43a0afbc-8efc-4b4a-96f8-9cd78c6e31e2)<br/>
+![ed9b54bd](https://github.com/user-attachments/assets/db272e42-1171-46e7-9df1-650c0f633ad0)<br/>
 
 feel free to interact with me and also get inspired, take ideas from my skins,<br/> just don't copy them pixel by pixel and don't post my skins anywhere without permission
 
