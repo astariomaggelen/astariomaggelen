@@ -6,4 +6,4 @@ offtab, afk ( away from keyboard ), int ( interact ), w2i (whisper to interact )
 
 you can sign my [atabook](https://astariomaggelen.atabook.org/), [strawpage](https://astariomaggelen.straw.page/) if you want
 
-thanks to everyone who follows me, i really appreciate it and am glad to see people, have a nice day </3
+thanks to everyone who follows me, i really appreciate it and am glad to see people, have a nice day <3
