@@ -4,7 +4,7 @@ offtab, afk ( away from keyboard ), int ( interact ), w2i ( whisper to interact 
 
 ![photo_2025-04-15_06-01-06](https://github.com/user-attachments/assets/7d5df11d-b157-4142-b665-b14d9caab8f6)<br/>
 
-you can sign my [atabook](https://astariomaggelen.atabook.org/), [strawpage](https://astariomaggelen.straw.page/) if you want
+you can sign my [atabook](https://astariomaggelen.atabook.org/) , [strawpage](https://astariomaggelen.straw.page/) if you want
 
 ![](https://komarev.com/ghpvc/?username=astariomaggelen&color=d4c9d7&base=2376&label)
 
