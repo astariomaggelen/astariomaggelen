@@ -8,5 +8,5 @@ you can sign my [atabook](https://astariomaggelen.atabook.org/) , [strawpage](ht
 
 ![](https://komarev.com/ghpvc/?username=astariomaggelen&color=d4c9d7&base=2376&label)
 
-thanks to everyone who follows me , i really appreciate it and am glad to see people , have a nice day <3
+big thanks to everyone who follows me , i really appreciate it and am glad to see people , have a nice day <3
 
