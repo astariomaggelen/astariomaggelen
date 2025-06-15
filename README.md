@@ -1,12 +1,22 @@
 <div align="center">
 
-i ' m mostly offtab , so my replies can be late , other tags i ' m using : afk ( away from keyboard ) , int ( interact ) , w2i ( whisper to interact ) , c + h ( cuddles and hide ) , dnc ( do not cover ) , nv ( non - verbal ) , mv ( my version ) , dnc ( do not copy ) , rpdni ( roleplay dni )
+**𝗂 ' 𝗆 𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻** , *𝗌𝗈* 𝗆𝗒 𝗋𝖾𝗉𝗅𝗂𝖾𝗌 **𝖼𝖺𝗇** *𝖻𝖾 𝗅𝖺𝗍𝖾* , **𝗈𝗍𝗁𝖾𝗋** 𝗍𝖺𝗀𝗌 *𝗂 ' 𝗆 𝗎𝗌𝗂𝗇𝗀* :<br/>
+
+**𝖺𝖿𝗄 ( 𝖺𝗐𝖺𝗒 𝖿𝗋𝗈𝗆 𝗄𝖾𝗒𝖻𝗈𝖺𝗋𝖽 )**<br/>
+**𝗂𝗇𝗍 ( 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 )**<br/>
+**𝗐𝟤𝗂 ( 𝗐𝗁𝗂𝗌𝗉𝖾𝗋 𝗍𝗈 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 )**<br/>
+**𝖼 + 𝗁 ( 𝖼𝗎𝖽𝖽𝗅𝖾𝗌 𝖺𝗇𝖽 𝗁𝗂𝖽𝖾 )**<br/>
+**𝖽𝗇𝖼 ( 𝖽𝗈 𝗇𝗈𝗍 𝖼𝗈𝗏𝖾𝗋 )**<br/>
+**𝗇𝗏 ( 𝗇𝗈𝗇 - 𝗏𝖾𝗋𝖻𝖺𝗅 )**<br/>
+**𝗆𝗏 ( 𝗆𝗒 𝗏𝖾𝗋𝗌𝗂𝗈𝗇 )**<br/>
+**𝖽𝗇𝖼 ( 𝖽𝗈 𝗇𝗈𝗍 𝖼𝗈𝗉𝗒 )**<br/>
+**𝗋𝗉𝖽𝗇𝗂 ( 𝗋𝗈𝗅𝖾𝗉𝗅𝖺𝗒 𝖽𝗇𝗂 )**<br/>
 
 ![photo_2025-04-15_06-01-06](https://github.com/user-attachments/assets/4c8e024e-6750-494f-9229-905806714c1d)<br/>
 
-you can sign my [atabook](https://astariomaggelen.atabook.org/) , [strawpage](https://astariomaggelen.straw.page/) if you want
+𝗒𝗈𝗎 𝖼𝖺𝗇 𝗌𝗂𝗀𝗇 𝗆𝗒 [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://astariomaggelen.atabook.org/) , [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://astariomaggelen.straw.page/) 𝗂𝖿 𝗒𝗈𝗎 𝗐𝖺𝗇𝗍
 
 ![](https://komarev.com/ghpvc/?username=astariomaggelen&color=d4c9d7&base=2376&label)
 
-big thanks to everyone who follows me , i really appreciate it and am glad to see people , have a nice day <3
+**𝖻𝗂𝗀 𝗍𝗁𝖺𝗇𝗄𝗌** 𝗍𝗈 𝖾𝗏𝖾𝗋𝗒𝗈𝗇𝖾 𝗐𝗁𝗈 *𝖿𝗈𝗅𝗅𝗈𝗐𝗌 𝗆𝖾* , 𝗂 **𝗋𝖾𝖺𝗅𝗅𝗒** 𝖺𝗉𝗉𝗋𝖾𝖼𝗂𝖺𝗍𝖾 𝗂𝗍 𝖺𝗇𝖽 𝖺𝗆 *𝗀𝗅𝖺𝖽* 𝗍𝗈 𝗌𝖾𝖾 𝗉𝖾𝗈𝗉𝗅𝖾 , 𝗁𝖺𝗏𝖾 𝖺 𝗇𝗂𝖼𝖾 𝖽𝖺𝗒 <𝟥
 
