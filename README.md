@@ -8,7 +8,7 @@
 
 [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://astariomaggelen.atabook.org/)ㅤ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://astariomaggelen.straw.page/)
 
-![loveyourself](https://github.com/user-attachments/assets/beb099a0-4cea-4566-b06d-868c5a320328)
+![tumblr_m230ouoWHD1qfamg6540](https://github.com/user-attachments/assets/0b76da87-2577-48cd-ab6d-b522788e67d0)
 
 𝗂 𝖽𝗈 𝗇𝗈𝗍 𝗋𝖾𝖼𝗈𝗆𝗆𝖾𝗇𝖽 𝗍𝗈 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 𝗐𝗂𝗍𝗁 𝗆𝖾, 𝗂𝖿 𝗒𝗈𝗎:
 
